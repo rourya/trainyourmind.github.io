@@ -1,1 +1,0 @@
-# trainyourmind.github.io
